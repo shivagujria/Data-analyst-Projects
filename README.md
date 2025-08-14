@@ -43,5 +43,5 @@ It enables quick decision-making by providing **key metrics** and **dynamic visu
 
 ## 📬 Contact
 **Shiva Gujria**  
-[LinkedIn](https://www.linkedin.com/in/shiva-guiria-0a8a64237/) | [Email](shivagujria786@gmail.com)
+[LinkedIn](www.linkedin.com/in/shiva-gujria001) | [Email](shivagujria786@gmail.com)
 
